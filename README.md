@@ -24,15 +24,15 @@
 
 <div align="center">
 ˚ ⋅ ” Hey! I'm Ashael or Asher , but you can call me Ash for short . I'm still a minor , strictly DNI people who are above the age of 20 and below the age of 13 .ᐟ „
-
-
-@ I go by He/They/It strictly , it's no worries if you mistake it sometimes , as mistakes are bound to happen , especially for pronouns .ᐟ ‧₊˚ ⋅ 
+  
+  
+  @ I go by He/They/It strictly , it's no worries if you mistake it sometimes , as mistakes are bound to happen , especially for pronouns .ᐟ ‧₊˚ ⋅ 
 
 
 ˚.୨୧˚ I am single , not really looking for a partner as of now . I am fine with people flirting every now and then as it doesn't affect me , and I will try to match your vibe
 
 
-★ ‧ Thought I have many cool and peak friends , I'm up for more friends ! So if you want to be friends with me , give me a whisper or talk with me ! one fact about me is , whenever I feel extremely comfortable around someone , I will always copy how that individual talks and match their exact vibe , as it brings me comfort and a sign I fully trust that individual ᐟᐟ
+★ ‧ Though I already have many cool and peak friends ,  I'm up for more friends ! So if you want to be friends with me , give me a whisper or talk with me ! one fact about me is , whenever I feel extremely comfortable around someone , I will always copy how that individual talks and match their exact vibe , as it brings me comfort and a sign I fully trust that individual ᐟᐟ
 
 
 ⠀　⠀𐐪　⠀ Please feel free to ever interact with me or cuddle up with me on pony town , as both are highly encouraged ! Please do , I won't bite , I promise ! 
