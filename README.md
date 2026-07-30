@@ -25,7 +25,15 @@
 <div align="center">
 ˚ ⋅ ” Hey! I'm Ashael or Asher, but you can call me Ash for short. I'm still a minor, strictly DNI people who are above the age of 20 and below the age of 13 .ᐟ „
 
+
 @ I go by He/They/It strictly, it's no worries if you mistake it sometimes, as mistakes are bound to happen, especially for pronouns .ᐟ ‧₊˚ ⋅ 
+
+
+˚.୨୧˚ I am single, not really looking for a partner as of now. I am fine with people flirting every now and then as it doesn't affect me, and I will try to match your vibe
+
+
+★ ‧ A fact about me is, whenever I feel extremely comfortable around someone, I will always copy how that individual talks and match their exact vibe, as it brings me comfort and a sign I fully trust that individual ᐟᐟ
+
 
 
 <p align="center"> 
