@@ -26,7 +26,6 @@
 ˚ ⋅ ” Hey! I'm Ashael or Asher, but you can call me Ash for short. I'm still a minor, strictly DNI people who are above the age of 20 and below the age of 13 .ᐟ „
 
 
-
 @ I go by He/They/It strictly, it's no worries if you mistake it sometimes, as mistakes are bound to happen, especially for pronouns .ᐟ ‧₊˚ ⋅ 
 
 
@@ -36,6 +35,10 @@
 ★ ‧ A fact about me is, whenever I feel extremely comfortable around someone, I will always copy how that individual talks and match their exact vibe, as it brings me comfort and a sign I fully trust that individual ᐟᐟ
 
 
+⠀　⠀𐐪　⠀ Please feel free to ever interact with me or cuddle up with me on pony town, as both are highly encouraged! Please do, I won't bite, I promise! 
+
+
+⠀　　𐙚　　My current fandoms include: PHIGHTING , genshin impact , deadplate , cookie run: kingdom , mha , EPIC: The musical , wolfwalkers , forsaken , unstable SMP , may madness 2012 , alien stage , dandys world ( I don't support Qwel whatsoever )　 ₊  ◞　
 
 <p align="center"> 
 <img width="323" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f7937356c61342e474946" src="https://github.com/user-attachments/assets/5331c84b-f94d-4187-9e61-2af81d3dae88" />
