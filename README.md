@@ -22,8 +22,12 @@
 <img width="1677" alt="image" src="https://github.com/user-attachments/assets/5f84ec39-d7c8-42e0-a8e3-04fa46553393" />
 
 
+
 <div align="center">
 ˚ ⋅ ” Hey! I'm Ashael or Asher , but you can call me Ash for short . I'm still a minor , strictly DNI people who are above the age of 20 and below the age of 13 .ᐟ „
+
+
+
   
   
   @ I go by He/They/It strictly , it's no worries if you mistake it sometimes , as mistakes are bound to happen , especially for pronouns .ᐟ ‧₊˚ ⋅ 
