@@ -1,4 +1,4 @@
-<img width="1300" alt="image" src="https://github.com/user-attachments/assets/7007af4f-5fe6-44ce-bcef-fb46e8309d22" />
+9<img width="1300" alt="image" src="https://github.com/user-attachments/assets/7007af4f-5fe6-44ce-bcef-fb46e8309d22" />
 
 <img width="1536" alt="image" src="https://github.com/user-attachments/assets/998ba0e3-b4f4-4511-925b-f2d28ebe9cab" />
 
@@ -41,7 +41,7 @@
 ⠀　　𐙚　　My current fandoms include: PHIGHTING , genshin impact , deadplate , cookie run: kingdom , mha , EPIC: The musical , wolfwalkers , forsaken , unstable SMP , may madness 2012 , alien stage , YeosM , dandys world ( I don't support Qwel nor her actions whatsoever )　 ₊  ◞　
 
 
-　˙　　˳　　⁺　　 My current interests are : collecting soda can tabs , collecting keychains/posters/figures/ acrylic standees , drawing/sketching and a lot more ! , , ₊  ◞
+　˙　　˳　　⁺　　 My current interests and favorite artists are : collecting soda can tabs , collecting keychains/posters/figures/ acrylic standees , drawing/sketching and a lot more ! . Mindless self indulgence , The Crane Wives , And One , Dovah , Ashbury Heights , She Wants Revenge , , ₊  ◞
 
  
 <p align="center"> 
