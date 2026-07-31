@@ -1,4 +1,4 @@
-<img width="1300" alt="image" src="https://github.com/user-attachments/assets/7007af4f-5fe6-44ce-bcef-fb46e8309d22" />
+0<img width="1300" alt="image" src="https://github.com/user-attachments/assets/7007af4f-5fe6-44ce-bcef-fb46e8309d22" />
 
 <img width="1536" alt="image" src="https://github.com/user-attachments/assets/998ba0e3-b4f4-4511-925b-f2d28ebe9cab" />
 
@@ -43,6 +43,8 @@
 
 ⠀　⠀𐐪　⠀ Please feel free to ever interact with me or cuddle up with me on pony town , as both are highly encouraged ! Please do , I won't bite , I promise ! 
 
+<p align="center"> 
+<img width="323" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f7937356c61342e474946" src="https://github.com/user-attachments/assets/5331c84b-f94d-4187-9e61-2af81d3dae88" />
 
 ⠀　　𐙚　　My current fandoms include: PHIGHTING , Genshin Impact , deadplate , Cookie Run : kingdom , mha , EPIC: The Musical, Wolfwalkers, Forsaken, Unstable SMP , May Madness 2012 , Alien Stage , YeosM , Dandys World ( I don't support Qwel nor her actions whatsoever )　 ₊  ◞　
 
