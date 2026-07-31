@@ -60,6 +60,8 @@
 
 ⊱ Soiya ! Soiya ! Soiya ! Fune Fune ! ۫ ׅ ✧
 
+.𖥔 Perhaps one of my inventions has finally been manufactured ! ݁ ˖
+
 <img width="1677" alt="image" src="https://github.com/user-attachments/assets/ed2d2931-8d68-40fd-b4dd-c3b2294c7123" />
 
 <p align="center">
