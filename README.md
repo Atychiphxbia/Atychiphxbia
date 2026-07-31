@@ -58,6 +58,8 @@
 ◟♯ . / I'm in the pony town regiment community , the current ones I'm in are : The SANGŌ Idol-Defense Force , Cavity Overload and The Dice Roulette !
 
 
+⊱ Soiya ! Soiya ! Soiya ! Fune Fune ! ۫ ׅ ✧
+
 <img width="1677" alt="image" src="https://github.com/user-attachments/assets/ed2d2931-8d68-40fd-b4dd-c3b2294c7123" />
 
 <p align="center">
