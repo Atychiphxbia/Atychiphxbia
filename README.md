@@ -26,7 +26,7 @@
 <img width="1677" alt="image" src="https://github.com/user-attachments/assets/5f84ec39-d7c8-42e0-a8e3-04fa46553393" />
 
 
-
+.✦ ݁˖      `” Don't make me have to rip that other eye out too ! „
 
 ˚ ⋅ ” Hey! I'm Ashael or Asher , but you can call me Ash for short . I'm still a minor , strictly DNI people who are above the age of 20 and below the age of 13 .ᐟ „
 
