@@ -19,14 +19,17 @@
 
 <img width="150" height="20" alt="555635063-e8d7652b-b739-4485-b34a-f5113c603f9d" src="https://github.com/user-attachments/assets/0f987d93-93bb-495c-bb16-93ea27fec7d4" /> <img width="150" height="20" alt="555635627-1a1aa925-fb97-43fb-8bf9-f01bc087ebfe" src="https://github.com/user-attachments/assets/3038951e-f610-4a53-a905-d6f2b737bb72" /> <img width="150" height="20" alt="555635710-d3c06556-2002-434b-bffe-44fc4767519f" src="https://github.com/user-attachments/assets/be440e20-cb1d-4a33-ac18-8ce59afe0843" /> <img width="150" height="20" alt="555635271-352ecf23-c419-4b6a-b9f9-b863cdfcfa7c" src="https://github.com/user-attachments/assets/7ea0d08d-2a5c-4435-a712-30da6f301bd1" />
 
+
+<div align="center">
+  
 <img width="1677" alt="image" src="https://github.com/user-attachments/assets/5f84ec39-d7c8-42e0-a8e3-04fa46553393" />
 
 
 
-<div align="center">
+
 ˚ ⋅ ” Hey! I'm Ashael or Asher , but you can call me Ash for short . I'm still a minor , strictly DNI people who are above the age of 20 and below the age of 13 .ᐟ „
 
-<div align="center">
+
   @ I go by He/They/It strictly , it's no worries if you mistake it sometimes , as mistakes are bound to happen , especially for pronouns .ᐟ ‧₊˚ ⋅ 
 
 
