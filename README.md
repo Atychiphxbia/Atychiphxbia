@@ -45,7 +45,7 @@
 ⠀　⠀𐐪　⠀ Please feel free to ever interact with me or cuddle up with me on pony town , as both are highly encouraged ! Please do , I won't bite , I promise ! 
 
 
-゛ ⸝⸝ DNI list : people who are above the age of 20 and below the age of 13 , some people are an exception due to knowing them well . Pro/dark-shippers , Qwel supporters , Pedos , Weirdos , Hazbin Hotel/Helluva Boss fans ,  Problematic people in general .ᐟ⋆
+゛ ⸝⸝ DNI list : people who are above the age of 20 and below the age of 13 , some people are an exception due to knowing them well . Pro/dark-shippers , Qwel supporters , Pedos , Weirdos , Hazbin Hotel/Helluva Boss fans IWEC ,  Problematic people in general .ᐟ⋆
 
 <p align="center"> 
 <img width="323" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f7937356c61342e474946" src="https://github.com/user-attachments/assets/5331c84b-f94d-4187-9e61-2af81d3dae88" />
