@@ -56,7 +56,7 @@
 　˙　　˳　　⁺　　 My current interests and favorite artists are : collecting soda can tabs , collecting keychains/posters/figures/ acrylic standees , drawing/sketching and a lot more ! . Mindless Self Indulgence, The Crane Wives , And One , Dovah , Ashbury Heights , She Wants Revenge , , ₊  
 
 
-◟♯ . / I'm in the pony town regiment community , the current ones I'm in are : The SANGŌ Idol-Defense Force , Cavity Overload and The Dice Roulette !
+◟♯ . / I'm in the pony town regiment community , the current ones I'm in are : The SANGŌ Idol-Defense Force and Cavity Overload !
 
 
 ⊱ Soiya ! Soiya ! Soiya ! Fune Fune ! ۫ ׅ ✧
